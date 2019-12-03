@@ -1,12 +1,12 @@
-My name is ...
+My name is Kayla 
 
-I'm ... years old.
+I'm 15 years old.
 
-I was born in ....
+I was born in FuZhou, China
 
-My favorite color is ...
+My favorite color is gray and blue
 
-My favorite 3 artist are ...
+My favorite 3 artist are A boogie, Sasha Sloan, and Billie Eilish
 
-On the weekends I like to ...
+On the weekends I like to sleep, play league and eat
 
